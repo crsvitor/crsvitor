@@ -2,7 +2,7 @@ Hi, I'm Vitor
 
 Software engineer that doesn't update his github or linkedin very often... Since 2021 I work in a bank, and all software and product development is kinda private, so might answer why I don't have a green github.
 
-Going back to me... I'm brazilian, very talkative in english and portuguese. <br>
+Continuing... I'm brazilian, very talkative in english and portuguese. <br>
 I formally study Science and Technology, in UFABC - a great university in Brazil. <br>
 And informally I focus in upskilling business soft and hard skills.
 
